@@ -16,4 +16,4 @@ Each time you meet with a stranger, simply enter the code everytime (applies for
 
 # ANY PROBLEMS ?
 
-Join me on discord *errør;#6547
+Join me on discord >nsym'BI0S#1337
